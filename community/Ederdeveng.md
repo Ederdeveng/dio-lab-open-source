@@ -1,6 +1,6 @@
 # Eder Souza 
 
-*#Orgulhor em Pertencer*
+*#Orgulhor em Pertencer* / VIVO :purple_heart:
 
 ## Na companhia há seis anos, busco sempre manter-me em aprendizado continuo. Apaixonado por tecnologia, mesmo trabalhando em loja, programação sempre foi um hobby, hoje aprendendo uma nova linguagem de programação. 
 
